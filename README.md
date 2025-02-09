@@ -1,1 +1,1 @@
-##WELCOME TO AZURANODE
+Welcome
