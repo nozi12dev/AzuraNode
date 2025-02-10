@@ -19,4 +19,4 @@ and we will soon reach 30 players.
 ```
 
 ## 👥 • Social Media
-[YouTube](https://github.com/nozi12dev/AzuraNode)
+[YouTube](https://www.youtube.com/@nozi.dev1)
