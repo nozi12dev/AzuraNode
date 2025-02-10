@@ -19,4 +19,4 @@ and we will soon reach 30 players.
 ```
 
 ## 👥 • Social Media
-[YouTube](https://www.youtube.com/@nozi.dev1)
+[YouTube](https://www.youtube.com/@nozi.dev1)|[Instagram](https://www.instagram.com/nozi.dev?igsh=amg0b2MzeGczOGw2)
