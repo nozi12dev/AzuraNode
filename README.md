@@ -17,6 +17,7 @@ and we will soon reach 30 players.
 
 4- register or login in server look in chat.
 ```
+if you have problem just Correct with us in Instagram.
 
 ## 👥 • Social Media
 [YouTube](https://www.youtube.com/@nozi.dev1)  |  [Instagram](https://www.instagram.com/nozi.dev?igsh=amg0b2MzeGczOGw2)
