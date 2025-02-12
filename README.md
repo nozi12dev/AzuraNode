@@ -20,4 +20,4 @@ and we will soon reach 30 players.
 if you have problem just Correct with us in Instagram.
 
 ## 👥 • Social Media
-[YouTube](https://www.youtube.com/@nozi.dev1)  |  [Instagram](https://www.instagram.com/nozi.dev?igsh=amg0b2MzeGczOGw2) | [Website](https://azurapvp25.w3spaces.com/status.html)
+[YouTube](https://www.youtube.com/@nozi.dev1)  |  [Instagram](https://www.instagram.com/nozi.dev?igsh=amg0b2MzeGczOGw2) | [Website](https://azurapvp25.w3spaces.com)
